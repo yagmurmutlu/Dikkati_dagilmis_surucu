@@ -1,1 +1,1 @@
-# Dikkati-Da-lm-S-r-c-Tespiti
+
